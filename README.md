@@ -1,3 +1,0 @@
-# otata
-
-himatsubushi
